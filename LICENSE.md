@@ -1,4 +1,4 @@
-# 
+# Enhance Affinity Photo for PC | Affinity Photo for Windows with advanced Affinity Photo for PC | Affinity Photo for Windows Addon | adjustment-layers + HDR-editing, the #1 addon.
 
 
 
